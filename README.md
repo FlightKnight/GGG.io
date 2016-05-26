@@ -1,3 +1,3 @@
-# 	༼ つ ◕_◕ ༽つHello-World-
-My first reporsitory on GitHub!
+# 	༼ つ ◕_◕ ༽つHello-babe-
+My first say love to you!!!
 I love :coffee:,and :pizza:,and:dancer:.
